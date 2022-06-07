@@ -1,1 +1,0 @@
-# technosite.github.io
